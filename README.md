@@ -1,7 +1,7 @@
 # 💫 Hi 👋, I'm Nitin
 **A passionate  DevOps Engineer || Fullstack developer**
 
-Email Me 👉 ✉️ **alamimran613@live.com** For Collaboration/Project or Anything Else. 😊😊
+Email Me 👉 ✉️ **nitinyadav484220@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
 - 🔭 **I’m currently working on:** drawxl
 - 🌱 **I’m currently learning:** Devops
