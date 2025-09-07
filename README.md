@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Nitin
-**A passionate  DevOps Engineer || Fullstack developer**
+**A passionate  GenAI Engineer || Fullstack developer || working on devops**
 
 Email Me 👉 ✉️ **nitinyadav484220@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
